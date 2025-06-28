@@ -194,6 +194,10 @@ https://www.irs.gov/forms-pubs/about-form-3949-a
 #### 刘宏 月嫂 （也有人说她化名很多 Lai yuan ting, 金赖婷，赖婷，赖玉婷）
 [又懒又坏，骗钱，能力差，脾气差（月嫂，可能在月子中心碰到）](./黑名单/刘宏.md)
 
+<img width="60" alt="image" src="https://github.com/user-attachments/assets/2d3a499e-3ba3-40b4-9d8c-4f52d7ac6fd0" /><img width="60" alt="image" src="https://github.com/user-attachments/assets/82f35984-e00c-491e-b9a7-2414d37ad992" />
+
+
+
 #### 刘军 （月嫂）
 [爱糊弄](./黑名单/刘军.md)
 
