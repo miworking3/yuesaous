@@ -23,3 +23,6 @@
 之所以产后这么久才发，是因为当时已经气到失眠，很怕再动了胎气，或者影响到产后修复，
 现在终于有时间有力气曝光这个月嫂了。
 请记住Mary Liu，湖南籍月嫂，不可用！！！
+![ec9a77296bba97d557839c1eb1854c56](https://github.com/user-attachments/assets/f768e3db-fce4-4b8d-a06c-623f74633b25)
+![79b92b3f10cb83d819738b30ea7beb1b](https://github.com/user-attachments/assets/fab62c9f-8374-4afd-9271-7cdce6546a77)
+![ac596fe90e48deaff17bb1baf4200161](https://github.com/user-attachments/assets/f006d720-edbd-4d64-9d01-c959c6fdd704)
