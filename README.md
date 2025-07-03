@@ -149,6 +149,9 @@ https://www.irs.gov/forms-pubs/about-form-3949-a
 
 
 ### 黑名单（欢迎投稿补充）
+
+#### Linda Yue 🖤通勤阿姨 WeChat ID:linda785380864
+[河北人。在北京上学。82年的，北外毕业。好像姓yue。懒，脾气大，情绪不稳定，没耐心，defensive](./黑名单/lindayue.md)
 #### Mary Liu 🖤阿姨 WeChat ID:yan9093318833
 [湖南籍月嫂，强势难沟通、坚持要跟宝宝单独睡、不肯配合亲喂、还要报销路费加算工时，一副来了就要当大爷的样子，幸好我当时退了她。](./黑名单/maryliu.md)
 
