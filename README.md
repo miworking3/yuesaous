@@ -149,7 +149,8 @@ https://www.irs.gov/forms-pubs/about-form-3949-a
 
 
 ### 黑名单（欢迎投稿补充）
-
+#### Mandy 葛英 号称可以做月嫂，其实不靠谱 撒谎
+[做事马虎、态度敷衍，家务做得一团糟还爱打电话偷懒；最离谱的是只做了两天还虚构经历，编造自己在月子中心照顾新生儿，撒谎骗人](./黑名单/mandy.md)
 #### Linda Yue 🖤通勤阿姨 WeChat ID:linda785380864
 [河北人。在北京上学。82年的，北外毕业。好像姓yue。懒，脾气大，情绪不稳定，没耐心，defensive](./黑名单/lindayue.md)
 #### Mary Liu 🖤阿姨 WeChat ID:yan9093318833
